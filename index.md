@@ -7,7 +7,7 @@
 
 ## The problem
 
-On the day, the planner becomes the single point of contact for every "what time?" and "where do I go?" questions. From the bridal party at 9am to the great-aunt who lost the printed itinerary.
+On the day, the planner becomes the single point of contact for every "what time?" and "where do I go?" question. From the bridal party at 9am to the great-aunt who lost the printed itinerary.
 
 - **Everyone needs a different version of the schedule.** The bridal party's call time isn't the guests' arrival time. Today that means separate group texts, printouts, and a lot of repeating yourself.
 - **Changes don't travel.** When the ceremony slips 30 minutes, or the venue has to move inside due to weather, there's no fast, reliable way to reach exactly the people affected.
@@ -32,7 +32,7 @@ Pilot planners get free access for the full pilot period, direct support from th
 
 If you'd like to see *Gather* on one of your upcoming weddings, get in touch and we'll set up a walkthrough.
 
-> **Riley Overfield** · riley.overfield3@gmail.com
+Contact: Riley Overfield · riley.overfield3@gmail.com
 
 *Last updated: 2026-05-28*
 
